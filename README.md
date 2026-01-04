@@ -27,4 +27,3 @@ Bu sayfa tamamen **arkadaşımın sevgilisine olan sürprizi** için hazırlanm�
 
 ---
 
-Çam sakızı çoban armağanı
